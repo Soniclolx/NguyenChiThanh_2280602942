@@ -1,2 +1,2 @@
-# NguyenChiThanh_2280602942
-Nguyễn Chí Thành - 2880602942
+Thanh toán bằng momo
+Thanh toán bằng card
